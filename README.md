@@ -1,2 +1,2 @@
 # Web-Dev-ChaiAurCode
-Curious web development enthusiast, always exploring new technologies, learning from experienced educators, and building practical skills.
+I enjoy learning web development from different educators around the world because each of them brings years of experience and a unique perspective. I believe every educator has something valuable to teach that I may not already know. That's why, whenever I have free time, I explore courses from different instructors to broaden my knowledge, discover new approaches, and continuously improve my skills.
